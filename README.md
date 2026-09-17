@@ -21,5 +21,7 @@ Children's Privacy. The Actual Price is not directed at children under 13, and w
 
 Changes to This Policy. We may update this privacy policy from time to time. Any changes will be posted on this page with an updated revision date.
 
-Contact Us. If you have questions about this privacy policy, please contact us at policy@thesimplapps.com
+Contact Us. If you have questions about this privacy policy, please contact us at policy@thesimplapps.com.
+
+Support. For support, questions, or feedback, please contact us at info@thesimplapps.com.
 
